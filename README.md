@@ -11,6 +11,6 @@ Here are some ideas to get you started:
 - 🤔 I’m looking for help with Company
 - 💬 Ask me about My Job
 - 📫 How to reach me: on ig : @fathnrafaa__
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
+- 😄 Pronouns: Fatttt
+- ⚡ Fun fact: I like Football
 -->
